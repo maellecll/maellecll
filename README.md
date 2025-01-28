@@ -1,4 +1,6 @@
 ## Hi there 👋
+Hi ! My name is Maëlle, I am french. I am 17 and am currently a freshman here at Hult. I am planning on majoring in Marketing and minoring in Design. I was always lived in France and always in the same house. I have an older sister and an older brother, they are both still at home, while, me, the little one left across the world. In the future, I want to work in communication, it is pretty large, but to be more precise, I am questionning myself on publicity or even journalism. To be honest, I just want to be able to use my artistic skills. My criteria for my job is that it needs to let me work worldwide, for now I don't see myself living only in one place. A part from that, I used to be a dancer for 15 years, and quit last june to start my studies here, and I also was a drawer for 8 years but quit 2 years ago. 
+I look forward to discover more and more everyday, I love learning and discovering new skills. 
 
 <!--
 **maellecll/maellecll** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
